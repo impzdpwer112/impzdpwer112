@@ -1,0 +1,2 @@
+- Hey! im NOT a programmer And asking me how do you code? well i use Ai!
+- Im robloxian! and stuff
